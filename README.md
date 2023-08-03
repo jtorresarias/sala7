@@ -1,6 +1,6 @@
 Integrantes del grupo>
 1.
-2.
+2.Leyla Gamarra
 3.
 4.Eder Ortega
 5.
