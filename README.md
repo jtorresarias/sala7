@@ -1,5 +1,5 @@
 Integrantes del grupo>
-1.
+1. Juliana López
 2.Leyla Gamarra
 3.
 4.Eder Ortega
